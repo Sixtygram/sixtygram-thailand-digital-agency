@@ -1,6 +1,6 @@
 # Sixtygram – Thailand Digital Marketing Agency
 
-[Sixtygram](https://sixtygram.com) is a full-service **Thailand digital marketing agency** that helps businesses elevate their online presence through smart strategies and creative execution. We specialize in delivering impactful solutions that drive real results.
+[Sixtygram Digital Agency](https://sixtygram.com) is a full-service **Thailand digital marketing agency** that helps businesses elevate their online presence through smart strategies and creative execution. We specialize in delivering impactful solutions that drive real results.
 
 ## 🔧 Services We Offer
 
